@@ -1,17 +1,9 @@
+<div class="tenor-gif-embed" data-postid="113694218985782577" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/me-and-the-minecraft-boys-minecraft-bedwars-ranked-bedwars-agogue-gif-113694218985782577">Me And The Minecraft Boys Bedwars Sticker</a>from <a href="https://tenor.com/search/me+and+the+minecraft+boys-stickers">Me And The Minecraft Boys Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
-# 💻Tech Stack
-![C#](https://img.shields.io/badge/c%23-%23239120.svg?style=flat&logo=c-sharp&logoColor=white) ![.Net](https://img.shields.io/badge/.NET-5C2D91?style=flat&logo=.net&logoColor=white) ![Django](https://img.shields.io/badge/django-%23092E20.svg?style=flat&logo=django&logoColor=white)![Python](https://img.shields.io/badge/python-3670A0?style=flat&logo=python&logoColor=ffdd54)
-# 📊GitHub Stats :
-![](https://github-readme-stats.vercel.app/api?username=Poeeno&theme=dark&hide_border=true&include_all_commits=false&count_private=false)<br/>
-![](https://github-readme-streak-stats.herokuapp.com/?user=Poeeno&theme=dark&hide_border=true)<br/>
-![](https://github-readme-stats.vercel.app/api/top-langs/?username=Poeeno&theme=dark&hide_border=true&include_all_commits=false&count_private=false&layout=compact)
+<div class="tenor-gif-embed" data-postid="113694218985782577" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/me-and-the-minecraft-boys-minecraft-bedwars-ranked-bedwars-agogue-gif-113694218985782577">Me And The Minecraft Boys Bedwars Sticker</a>from <a href="https://tenor.com/search/me+and+the+minecraft+boys-stickers">Me And The Minecraft Boys Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
-## 🏆GitHub Trophies
-![](https://github-trophies.vercel.app/?username=Poeeno&theme=onedark&no-frame=true&no-bg=true&margin-w=4)
+<div class="tenor-gif-embed" data-postid="113694218985782577" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/me-and-the-minecraft-boys-minecraft-bedwars-ranked-bedwars-agogue-gif-113694218985782577">Me And The Minecraft Boys Bedwars Sticker</a>from <a href="https://tenor.com/search/me+and+the+minecraft+boys-stickers">Me And The Minecraft Boys Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
-### ✍️Random Dev Quote
-![](https://quotes-github-readme.vercel.app/api?type=horizontal&theme=dark)
+<div class="tenor-gif-embed" data-postid="113694218985782577" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/me-and-the-minecraft-boys-minecraft-bedwars-ranked-bedwars-agogue-gif-113694218985782577">Me And The Minecraft Boys Bedwars Sticker</a>from <a href="https://tenor.com/search/me+and+the+minecraft+boys-stickers">Me And The Minecraft Boys Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
----
-[![](https://visitcount.itsvg.in/api?id=Poeeno&icon=0&color=0)](https://visitcount.itsvg.in)
-
+<div class="tenor-gif-embed" data-postid="113694218985782577" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/me-and-the-minecraft-boys-minecraft-bedwars-ranked-bedwars-agogue-gif-113694218985782577">Me And The Minecraft Boys Bedwars Sticker</a>from <a href="https://tenor.com/search/me+and+the+minecraft+boys-stickers">Me And The Minecraft Boys Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
