@@ -7,3 +7,4 @@
     <img alt="github-snake" src="https://github.com/Poeeno/Poeeno/blob/output/github-contribution-grid-snake-dark.svg" />
   </picture>
 </p>
+![doot](https://raw.githubusercontent.com/Poeeno/Poeeno/refs/heads/main/me-and-the-minecraft-boys-minecraft.gif)![doot](https://raw.githubusercontent.com/Poeeno/Poeeno/refs/heads/main/me-and-the-minecraft-boys-minecraft.gif)![doot](https://raw.githubusercontent.com/Poeeno/Poeeno/refs/heads/main/me-and-the-minecraft-boys-minecraft.gif)![doot](https://raw.githubusercontent.com/Poeeno/Poeeno/refs/heads/main/me-and-the-minecraft-boys-minecraft.gif)![doot](https://raw.githubusercontent.com/Poeeno/Poeeno/refs/heads/main/me-and-the-minecraft-boys-minecraft.gif)![doot](https://raw.githubusercontent.com/Poeeno/Poeeno/refs/heads/main/me-and-the-minecraft-boys-minecraft.gif)
